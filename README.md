@@ -95,4 +95,4 @@ This project is licensed under the MIT License - see the LICENSE file for detail
 
 ## Contact
 
-For any queries or support, please reach out to [contact information]
+For any queries or support, please reach out to heather cochran, lmsw 415-755-8169
